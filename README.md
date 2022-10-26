@@ -1,7 +1,11 @@
 Proposal_F’s art gallery
+
 About us:
+
 When people ask me what my work is about, I can only answer “everything!” My paintings come from my daily life, and are attempts to make sense of the world. They express my wishes and dreams for a better world, they celebrate happy occasions, my sadness and frustration, as I explore life’s dualities..
+
 Why!
+
 An art gallery is a place where one can see and buy artworks by emerging, established or master artists. It's important to keep in mind that a gallery is not a shop, but a meeting point for art lovers.
  
 States the purpose:
